@@ -1,0 +1,16 @@
+---
+title: Happy Independence Day!
+author: robin
+type: post
+date: 2011-05-11T13:43:16+00:00
+url: /?p=205
+categories:
+  - Uncategorized
+
+---
+Monday night and all day yesterday the country of Israel celebrates Independence Day. Here they observe Memorial Day starting at sundown Sunday night to sundown Monday night&#8230;then the celebration starts. We went to downtown Jerusalem to take part in the celebrations. It had a feel like Fair St. Louis with a little bit of Mardi Gras thrown in there. It was amazing to see the streets I walk up and down every day just packed with people, kids playing, security, and the like. We ate dinner and had a couple of drinks and enjoyed the people watching. I think all of Jerusalem was out that night. Tuesday we went to the answers.com CEO&#8217;s house for a BBQ. It was nice to have food that wasn&#8217;t prepared in a restaurant and have some home cooking. The only thing missing was a piece of cheese on my hamburger&#8230;dang you kosher foods. The parks around our hotel were also packed with people on Tuesday BBQ. It was explained to me that since almost everyone lives in apartments, most people don&#8217;t have a yard to BBQ in so they have to go to the parks and gardens. It was a beautiful day and fun to celebrate another countries Independence Day. [<img class="aligncenter size-medium wp-image-209" title="DSC_0171" src="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0171-300x199.jpg" alt="" width="300" height="199" srcset="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0171-300x199.jpg 300w, http://robinandmike.com/wp-content/uploads/2011/05/DSC_0171-1024x680.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />][1][<img class="aligncenter size-medium wp-image-208" title="DSC_0167" src="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0167-300x199.jpg" alt="" width="300" height="199" srcset="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0167-300x199.jpg 300w, http://robinandmike.com/wp-content/uploads/2011/05/DSC_0167-1024x680.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />][2][<img class="aligncenter size-medium wp-image-207" title="DSC_0168" src="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0168-300x199.jpg" alt="" width="300" height="199" srcset="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0168-300x199.jpg 300w, http://robinandmike.com/wp-content/uploads/2011/05/DSC_0168-1024x680.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />][3][<img class="aligncenter size-medium wp-image-206" title="DSC_0162" src="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0162-300x199.jpg" alt="" width="300" height="199" srcset="http://robinandmike.com/wp-content/uploads/2011/05/DSC_0162-300x199.jpg 300w, http://robinandmike.com/wp-content/uploads/2011/05/DSC_0162-1024x680.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />][4]
+
+ [1]: http://robinandmike.com/wp-content/uploads/2011/05/DSC_0171.jpg
+ [2]: http://robinandmike.com/wp-content/uploads/2011/05/DSC_0167.jpg
+ [3]: http://robinandmike.com/wp-content/uploads/2011/05/DSC_0168.jpg
+ [4]: http://robinandmike.com/wp-content/uploads/2011/05/DSC_0162.jpg

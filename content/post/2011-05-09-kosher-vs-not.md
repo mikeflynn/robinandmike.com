@@ -1,0 +1,11 @@
+---
+title: Kosher vs. Not
+author: robin
+type: post
+date: 2011-05-09T11:10:37+00:00
+url: /?p=197
+categories:
+  - Uncategorized
+
+---
+This entire trip has been quite the learning experience for both Michael and me. The biggest learning has been around the traditions and customs of the Jewish faith. We are completely submersed in it so want to or not we are learning it. The thing that has been hardest to wrap my mind around is the idea of kosher food. Living in St. Louis where there are literally only one or two kosher restaurants it is not something that I&#8217;ve really had any contact with. Here however almost every restaurant is kosher, not only are restaurants kosher but so are apartments, and grocery stores. So what is this idea of kosher, here&#8217;s the link to the wikipedia page I think they explain it pretty well <a href="http://en.wikipedia.org/wiki/Kosher_foods" target="_blank">http://en.wikipedia.org/wiki/Kosher_foods</a>. The biggest take away is that kosher food is essentially fit to be eaten (and again all of this is just how I&#8217;m understanding it I do not claim to be an expert). One of the big rules that we keep running into is that meat cannot be eaten with dairy. So there are meat restaurants and dairy restaurants if it&#8217;s dairy then the only protein on the menu is fish and meat restaurants in turn have NO dairy or any kind. So if you order coffee there is no milk for it, no cheese on your hamburger or sandwich. We have also learned that those practicing Jews even have separate containers in there house for meat, dairy, and what is considered &#8220;other&#8221;. Michael even got attitude from a co-worker for putting cheese he bought separately on his meat sandwich. One obstacle that we found in searching for an apartment is that many apartments around here are kosher and since we aren&#8217;t they don&#8217;t want to rent to us since we would tarnish the kosher vibe. It has been quite the experience hearing about all these traditions and really wanting to know why it&#8217;s important. I&#8217;m not sure I completely get it, but I know for sure I will not be adapting these traditions any time soon. Today at the hotel I had my turkey and cheese sandwich and it was magnificent.

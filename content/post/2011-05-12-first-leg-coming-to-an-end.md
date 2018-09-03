@@ -1,0 +1,15 @@
+---
+title: First Leg coming to an end!!
+author: robin
+type: post
+date: 2011-05-12T19:09:56+00:00
+url: /?p=211
+categories:
+  - Uncategorized
+
+---
+It is so hard to believe we have been here for three weeks already. Somedays I feel like we just got here, others I think we have been here forever, but the first leg of my trip is almost over. Kathy and I have been getting some last minute touring and exploring in before I head back for Jen&#8217;s wedding. Kathy won&#8217;t be returning for the end of the summer so today was our last day together. A little sad but also exciting to know I&#8217;ll be coming home so soon. Yesterday we took a cab to <a href="http://en.wikipedia.org/wiki/Yad_Vashem" target="_blank">Yad Vashem</a> (The Holocaust Remembrance Museum). It was definitely a touching experience. When I was in high school I was able to go to <a href="http://en.wikipedia.org/wiki/Auschwitz_concentration_camp" target="_blank">Auschwitz </a>in Poland, so to see the names and faces of so many Jewish families that were sent to and ultimately killed at Auschwitz. It was pretty crazy to see the story that started for me in Auschwitz come full circle here. It was also nice that the museum finished with survivors and those who help the Jewish people escape or hide. So it finished up on a high note even though it was pretty moving.
+
+Today Kathy and I had lunch at the Indian restaurant in town (and yes I said the restaurant since there is only one). It is also a kosher Indian restaurant. I had never had Indian food before so I didn&#8217;t have a frame of reference to compare it too, but according to Kathy it was okay Indian food. There was no cream in the sauces since it had meat we know there can&#8217;t be any dairy, so she said that made the dishes a little weird for her. The rice pudding we had at the end had good flavor but was a weird runny texture due to the lack of milk. After that we were going to take a cab to the girls school but once we looked at the map we realized it would be easier to just walk. We were pretty happy to be walking when we saw the horrible traffic that we would have been stuck in. That is one thing that I have really learned that walking is definitely the easiest and often most direct way to get from point a to b. Sometimes driving will add an extra kilometer and traffic is awful in certain areas. So we got the girls and walked back home, a little sad to say goodbye it has certainly been wonderful having a partner in crime here.
+
+Tonight is also our last night at the Inbal Hotel, I celebrated by getting a massage in the spa. We have enjoyed our stay but if any one ever wondered 10 days is long enough in one hotel room. We are very excited to be moving across the street to our apartment tomorrow after 21 days in this room we have had enough. I&#8217;m looking forward to coming home for a little bit and seeing what&#8217;s next for us on this summer filled with adventure.

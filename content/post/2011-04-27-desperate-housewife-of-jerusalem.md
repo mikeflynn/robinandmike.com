@@ -1,0 +1,15 @@
+---
+title: Desperate Housewife of Jerusalem
+author: robin
+type: post
+date: 2011-04-27T14:44:19+00:00
+url: /?p=179
+categories:
+  - Uncategorized
+
+---
+The reason we are here is so that Michael can work which is easy to forget since we are at a hotel and it feels like a vacation, but yesterday was the first day the guys went to the office. So all day I was on my own and that&#8217;s what it will continue to be like during the work week. It&#8217;s a pretty nice life being a housewife in a hotel. Yesterday I got up when Michael was getting ready for work and headed downstairs for breakfast. After breakfast I went to the gym and then to the pool. Kathy and I made plans to do lunch and then pick up her daughters from school. We headed out about 1:30pm or so. The walk to the school is challenging because it is all uphill (again I better come back in better shape than I left) but it&#8217;s a cool street that we go up, lots to see. So we got the girls and stopped for gelato on the way home. Michael had a company dinner last night so I went up to the Mamilla Mall and ate at Cafe Cafe. It was tasty and the server was very friendly.
+
+Today was similar to yesterday except I could not get out of bed when Michael left. I was exhausted. I slept in a little late, but then met up with Kathy again. We went to one of the big street markets in Jerusalem. What a sight to see. Kathy compared it to the markets in Asia. It looked like a movie set to me. They had all sorts of stuff: produce, spices, baked goods, meat, etc. We had lunch at one of the restaurants in the market and then walked over and got the girls again. Michael and I have been really wanting some juice so Kathy directed me to an actual grocery store that would have snacks and drinks for us. What an experience shopping in a grocery store in Jerusalem. Everything was in Hebrew. Kathy warned me that I would need a &#8220;club card&#8221; to shop there, I just asked the guy for one and he handed it to me, not very exclusive, luckily for me. I found some drinks and granola bars and then went to check out. They have a different procedure to handle the carts but I didn&#8217;t exactly figure it out. I&#8217;ll need to keep a better eye on what everyone else is doing. Once I got my groceries I started walking back to the hotel. Even though I didn&#8217;t get to the gym today I definitely got my workout in, after all that walking then carrying those heavy bags, in the heat. I wonder how many calories I burned?? Then it was back to the hotel and a little pool time. I&#8217;m going to start getting ready for dinner since I have no idea when it might be it&#8217;s better to just be ready because when those boys are ready it&#8217;s time to go.
+
+So all in all it doesn&#8217;t suck to be a desperate housewife of Jerusalem and I think it will only get better as I get more comfortable.

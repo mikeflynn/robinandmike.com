@@ -1,0 +1,11 @@
+url: http://robinandmike.com
+name: Robin and Mike Flynn
+description: "It's just...you know...our adventures."
+theme: hugo-minimalist-theme
+languageCode: 'en-us'
+params:
+  site_author: 'Robin Flynn'
+  site_description: "It's just...you know...our adventures."
+  header_title: 'Robin and Mike'
+  header_tagline: "It's just...you know...our adventures."
+  header_background: "header.jpg"

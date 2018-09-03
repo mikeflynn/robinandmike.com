@@ -1,0 +1,15 @@
+---
+title: Getting into a groove
+author: robin
+type: post
+date: 2011-05-03T12:47:39+00:00
+url: /?p=189
+categories:
+  - Uncategorized
+
+---
+This week we have settled more into a groove with Michael being at work and I&#8217;m just hanging around Jerusalem during the days. We usually get together for dinner around 8pm at night and we have a couple of hours before bedtime. It seems like Kathy and I have found a little bit of a groove too. Yesterday we walked all over Jerusalem in search of apartments for myself, Michael, and Brian. We found a really cute apartment but it&#8217;s a little far from the Inbal Hotel where many Announce Media guys will be coming in and out during the summer, so we will keep looking. We are supposed to be checking out of the Inbal on Thursday, but I don&#8217;t think we will have an apartment by then, maybe I will be surprised. Kathy and I really impressed ourselves that we were able to get around with few issues even though we didn&#8217;t have and iPhone to help or even a map. After we walk around and shop a little we typically get some lunch. Yesterday I had my first taste of Korean food. Kathy is Korean and hunted down the Korean restaurant in town. It was pretty good. I let her order for me, and I got this rice, vegetables, beef dish served with an egg on top. I really enjoyed it. After lunch we head to the school and get the girls, then I usually head home and spend time at the pool before getting ready for dinner.
+
+Today is a little different all the Announce Media and Answers.com guys are on an all day excursion, rafting, hiking, etc. So they won&#8217;t be home until late. I still spent the morning and afternoon with Kathy. We were on a mission to find two white t-shirts for the girls for school and hangers. A little harder task here than the US. There&#8217;s no Target or Wal-Mart so to get items like that you have to really look. We went into a number of different clothing shops and finally found some plain t-shirts. Then we found what looked to be like a Dollar store and luckily found some hangers. We had some extra time after we ate our falafel for lunch that we went in search of the Asian market that we stumbled across yesterday. I was pretty proud that we were able to find it again. Then we got the girls from school and headed back home. After all the walking today and yesterday my legs are tired I&#8217;m just hanging out in my room for a little bit and then will probably go to the pool soon.
+
+We are finding our way around a lot easier and there are times that I actually know and understand where I am and how the roads connect. Last night we went to a new restaurant for dinner on the recommendation of an Answers.com guys. It was a place called Meat Burger and the name pretty much says it all. They had amazing hamburgers, but the best part was they have cheddar cheese and bacon. Two things that you do not see here. We enjoyed a beautiful evening. It feels pretty good to have a little bit of a routine. I&#8217;m anxious to get into our apartment and see how that goes, but so far we are enjoying where we are at.

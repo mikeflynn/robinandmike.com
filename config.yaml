@@ -1,4 +1,4 @@
-url: http://robinandmike.com
+url: https://robinandmike.com
 name: Robin and Mike Flynn
 description: "It's just...you know...our adventures."
 theme: hugo-minimalist-theme
@@ -8,4 +8,4 @@ params:
   site_description: "It's just...you know...our adventures."
   header_title: 'Robin and Mike'
   header_tagline: "It's just...you know...our adventures."
-  header_background: "header.jpg"
+  header_background: "/header.jpg"
